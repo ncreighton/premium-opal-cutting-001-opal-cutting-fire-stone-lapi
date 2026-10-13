@@ -1,0 +1,2 @@
+# premium-opal-cutting-001-opal-cutting-fire-stone-lapi
+Tired of watching your precious opal rough crack or lose its fire the moment you touch it to a blade? This workshop is built to stop the waste and start the wow.  Most opal-cutting guides gloss over the delicate handling that opals and fire stones demand. This workshop gives you a proven, step-by-step system to cut with confidence, revealing every
